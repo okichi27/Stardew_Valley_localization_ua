@@ -1,0 +1,1 @@
+# Stardew_Valley_localization_ua
